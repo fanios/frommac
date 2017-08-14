@@ -16,3 +16,12 @@ A:Enough.
 B:Why people hate people?Why people love people?
 
 A:Because mothers love their children,also punish them for behavious not as command.
+
+--
+
+###  <center>Day 4
+A:You need more concentration
+
+B:In what?
+
+A:In what you want in the future,in what you love everyday.
